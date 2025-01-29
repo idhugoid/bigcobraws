@@ -16,6 +16,9 @@ The event will be hosted at the CS Department of Aarhus University in the city o
 31st March: Final Programme  
 3th and 4th April: Workshop 
 
+## Registration
+[Follow this link](https://docs.google.com/forms/d/e/1FAIpQLSeVxdXe8Ar4Fhbdf2tLaJpaJnA__F4vFrY53ewVfOqfNVXj1w/viewform?usp=dialog)
+
 ## Programme (Draft)
 
 ### Thursday, 3rd of April
